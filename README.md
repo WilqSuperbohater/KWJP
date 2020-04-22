@@ -1,1 +1,1 @@
-# Kurs-Wybranego-Jezyka-Programowania
+# Kurs Wybranego Języka Programowania
